@@ -1,1 +1,1 @@
-Hey les habla Jesy, aquí les dejé más cambios
+les habla Jesy, aquí les dejé más cambios 
